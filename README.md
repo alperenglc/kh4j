@@ -1,1 +1,0 @@
-selamun aleyküüm
